@@ -1,0 +1,1 @@
+# 6_dars_uyga_vazifa
